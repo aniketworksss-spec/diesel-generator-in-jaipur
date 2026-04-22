@@ -1,4 +1,4 @@
-# diesel-generator-in-jaipur
+# Diesel-generator-in-jaipur
 Top-Rated Diesel Generator in Jaipur: Rajasthan Supplier Guide 2026
 Meta Description
 Looking for a reliable diesel generator in Jaipur? Explore top suppliers, rental options, and buying tips for businesses in Rajasthan.
